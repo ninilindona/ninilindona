@@ -12,4 +12,4 @@ Você pode entrar em contato comigo 📫
 
 00001101015366sp@al.educacao.sp.gov.br
 
-@alurastartestudante
+@nicole__memories
